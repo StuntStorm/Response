@@ -1,26 +1,32 @@
 # Response Sheet
 
 -----------------------------------------------------------
-what is online contest user id?
+What is Online Contest User ID?
 
-`Id used to write the prelims`
+`The ID you used to write the prelims.`
 
 -----------------------------------------------------------
 
 Does Each one of the participants have to fill the transportation details form seperately?
 
-`If the team is coming together, they don't need to fill it seperately`
+`If the team is coming together, they don't need to fill it seperately.`
  
 -----------------------------------------------------------
 
 Where will the Pickup be from?
 
-`The pickup will be either from kayamkulam railway station or bus station`
+`The pickup will be either from Kayamkulam Railway Station (KYN) or bus station.`
 
 -----------------------------------------------------------
 
-We don't really want you guys to wait on us, which might happen if our trains arrival gets delayed
+We don't really want you guys to wait on us, which might happen if our trains arrival gets delayed.
 
-`Don't worry about the delays that are caused`
+`Don't worry about the delays that are caused.`
 
 -----------------------------------------------------------
+
+Will Amrita be providing a taxi service from the airport to campus ?
+
+`Unfortunately, no, you will have to arrange your own prepaid taxi if that's the case.`
+
+------------------------------------------------------------
