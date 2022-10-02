@@ -1,5 +1,6 @@
-![icpc-logo](https://user-images.githubusercontent.com/73681462/193437474-a74c9e9c-1e2a-403c-b1c4-fc3c90571d93.png)
-# Response Sheet
+![icpc-logo](https://user-images.githubusercontent.com/56226566/193437737-735414ca-2113-4f3c-af79-03c6c6e7dcb6.png)
+
+# Response Sheet for ACM Volunteers
 
 -----------------------------------------------------------
 What is Online Contest User ID?
