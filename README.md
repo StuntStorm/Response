@@ -30,3 +30,8 @@ Will Amrita be providing a taxi service from the airport to campus ?
 `Unfortunately, no, you will have to arrange your own prepaid taxi if that's the case.`
 
 ------------------------------------------------------------
+Will Amrita be providing a non-veg food option ?
+
+`Unfortunately, no, you will have to catter yourself from the nearby restaurants and there are limited non-veg options available in the Bio-Tech cateen .`
+
+------------------------------------------------------------
