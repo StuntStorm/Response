@@ -36,21 +36,26 @@ Will Amrita be providing a taxi service from the airport to campus ?
 `Unfortunately, no, you will have to arrange your own prepaid taxi if that's the case.`
 
 ------------------------------------------------------------
+
 Will Amrita be providing a non-veg food option ?
 
 `Unfortunately, no, you will have to catter yourself from the nearby restaurants and there are limited non-veg options available in the Bio-Tech canteen .`
 
 ------------------------------------------------------------
+
 The Coach is not travelling with the participants, Should the coaches be added into the Whatsapp group?
 
 `Not necessary, if he wants to be in the grp, sure`
 
 ------------------------------------------------------------
+
 We are arriving on 4th evening, so is it possible that you can provide us with accomodation from 4th oct?
 
 `Yes, we can provide accommodation from 4th oct 👍🏻`
 ------------------------------------------------------------
+
 Reserve members not mandatory, right?
 
 `No, they're not`
+
 ------------------------------------------------------------
