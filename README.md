@@ -1,4 +1,6 @@
-![icpc-logo](https://user-images.githubusercontent.com/56226566/193437737-735414ca-2113-4f3c-af79-03c6c6e7dcb6.png)
+<p align="center">
+  <img width="700" height="400" src="https://user-images.githubusercontent.com/56226566/193438268-b79952a0-75bb-4543-baec-226e485e0de6.png">
+</p>
 
 # Response Sheet for ACM Volunteers
 
