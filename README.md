@@ -39,3 +39,8 @@ Will Amrita be providing a non-veg food option ?
 `Unfortunately, no, you will have to catter yourself from the nearby restaurants and there are limited non-veg options available in the Bio-Tech canteen .`
 
 ------------------------------------------------------------
+The Coach is not travelling with the participants, Should the coaches be added into the Whatsapp group?
+
+`Not necessary, if he wants to be in the grp, sure`
+
+------------------------------------------------------------
