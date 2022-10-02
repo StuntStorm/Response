@@ -4,6 +4,8 @@
 
 # Response Sheet for ACM Volunteers
 
+Check out [Information Sheet](https://stuntstorm.github.io/Information/) for more Information 
+
 -----------------------------------------------------------
 What is Online Contest User ID?
 
@@ -44,7 +46,3 @@ The Coach is not travelling with the participants, Should the coaches be added i
 `Not necessary, if he wants to be in the grp, sure`
 
 ------------------------------------------------------------
-
-<p align="center">
-  <img width="300" height="700" src="https://user-images.githubusercontent.com/56226566/193465654-95e058de-a0b0-45ef-a927-5b0f88703130.png">
-</p>
