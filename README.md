@@ -33,6 +33,6 @@ Will Amrita be providing a taxi service from the airport to campus ?
 ------------------------------------------------------------
 Will Amrita be providing a non-veg food option ?
 
-`Unfortunately, no, you will have to catter yourself from the nearby restaurants and there are limited non-veg options available in the Bio-Tech cateen .`
+`Unfortunately, no, you will have to catter yourself from the nearby restaurants and there are limited non-veg options available in the Bio-Tech canteen .`
 
 ------------------------------------------------------------
