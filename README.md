@@ -52,6 +52,7 @@ The Coach is not travelling with the participants, Should the coaches be added i
 We are arriving on 4th evening, so is it possible that you can provide us with accomodation from 4th oct?
 
 `Yes, we can provide accommodation from 4th oct 👍🏻`
+
 ------------------------------------------------------------
 
 Reserve members not mandatory, right?
