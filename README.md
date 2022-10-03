@@ -67,4 +67,4 @@ Can you tell us about rules specific to 25-30 pages booklet of algorithms which 
 
 ------------------------------------------------------------
 
-More soon..
+More soon...
