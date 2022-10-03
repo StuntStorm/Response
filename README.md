@@ -63,6 +63,6 @@ Reserve members not mandatory, right?
 
 Can you tell us about rules specific to 25-30 pages booklet of algorithms which we can use during contest
 
-``
+`They can bring 25 pages (13 A4 sheets with both sides printed) of reference material with them.. Font is Times New Roman with size 10. If they bring a soft copy, we can get it printed at our reprographic center.`
 
 ------------------------------------------------------------
