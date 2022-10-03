@@ -60,3 +60,9 @@ Reserve members not mandatory, right?
 `No, they're not`
 
 ------------------------------------------------------------
+
+Can you tell us about rules specific to 25-30 pages booklet of algorithms which we can use during contest
+
+``
+
+------------------------------------------------------------
