@@ -80,14 +80,15 @@ Also will we be served south Indian food?
 Where would you recommend us to visit nearby as we have 5th and 6th as free days?
 
 ``` 
-Azheekal beach - 8km (sunset/lighthouse). Lighthouse-a must visit.
-Oachira Parabrahma temple-6 km 
-Krishnapuram Palace- 8.4 km 
+Oachira Parabrahma temple - 6km 
+Azheekal beach - 8km (sunset/lighthouse). 
+Lighthouse - must visit.
+Krishnapuram Palace - 8.4 km 
 Neendakara port - 23km
-Ashtamudi lake-25km
+Ashtamudi lake - 25km
 Munroe island - 25km 
-Thangassery beach-31km
-Jatayu rock -63 km
+Thangassery beach - 31km
+Jatayu rock - 63 km
 `````
 
 ------------------------------------------------------------
