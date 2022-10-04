@@ -67,4 +67,10 @@ Can you tell us about rules specific to 25-30 pages booklet of algorithms which 
 
 ------------------------------------------------------------
 
-More soon...
+Also will we be served south Indian food?
+
+`Imma just say it's available, and if they really really want south Indian food, we just take them to regular mess`
+
+`This is a common question. You can answer yes for now`
+
+------------------------------------------------------------
