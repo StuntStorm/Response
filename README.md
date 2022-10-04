@@ -4,6 +4,8 @@
 
 # Response Sheet for ACM Volunteers
 
+[This sheet is for **Volunteers** and NOT for **Participants! Do Not Share**]
+
 Check out [Information Sheet](https://stuntstorm.github.io/Information/) for more Information 
 
 -----------------------------------------------------------
@@ -72,5 +74,20 @@ Also will we be served south Indian food?
 `Imma just say it's available, and if they really really want south Indian food, we just take them to regular mess`
 
 `This is a common question. You can answer yes for now`
+
+------------------------------------------------------------
+
+Where would you recommend us to visit nearby as we have 5th and 6th as free days?
+
+``` 
+Azheekal beach - 8km (sunset/lighthouse). Lighthouse-a must visit.
+Oachira Parabrahma temple-6 km 
+Krishnapuram Palace- 8.4 km 
+Neendakara port - 23km
+Ashtamudi lake-25km
+Munroe island - 25km 
+Thangassery beach-31km
+Jatayu rock -63 km
+`````
 
 ------------------------------------------------------------
