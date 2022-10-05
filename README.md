@@ -77,6 +77,12 @@ Also will we be served south Indian food?
 
 ------------------------------------------------------------
 
+Would the Participants recieve the badges today itself?
+
+`Yes`
+
+------------------------------------------------------------
+
 Where would you recommend us to visit nearby as we have 5th and 6th as free days?
 
 ``` 
