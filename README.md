@@ -103,16 +103,10 @@ One of our team members is not well and might not be able to come to Amritapuri.
 `they can come and participate in the regional contest at amritapuri. But they will not be included in the ranking lists`
 `Ask them to send a mail to maheshwara@amrita.edu`
 ------------------------------------------------------------
+![image](https://user-images.githubusercontent.com/72914440/194758502-cc7ea41c-b44a-4472-b1ed-649d9b5f9e51.png)
+![Uploading image.png…]()
 
-------------------------------------------------------------
-
-Also will we be served south Indian food?
-
-`Imma just say it's available, and if they really really want south Indian food, we just take them to regular mess`
-
-`This is a common question. You can answer yes for now`
-
-------------------------------------------------------------
+![Uploading image.png…]()
 
 Would the Participants recieve the badges today itself?
 
