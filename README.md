@@ -104,43 +104,39 @@ One of our team members is not well and might not be able to come to Amritapuri.
 `Ask them to send a mail to maheshwara@amrita.edu`
 ------------------------------------------------------------
 
-One of our team members is not well and might not be able to come to Amritapuri. In that case will we be able to give the competition with only 2 of the team members present?
+------------------------------------------------------------
 
-`they can come and participate in the regional contest at amritapuri. But they will not be included in the ranking lists`
-`Ask them to send a mail to maheshwara@amrita.edu`
+Also will we be served south Indian food?
+
+`Imma just say it's available, and if they really really want south Indian food, we just take them to regular mess`
+
+`This is a common question. You can answer yes for now`
+
+------------------------------------------------------------
+
+Would the Participants recieve the badges today itself?
+
+`Yes`
+
+------------------------------------------------------------
+
+Where would you recommend us to visit nearby as we have 5th and 6th as free days?
+
+``` 
+Oachira Parabrahma temple - 6km 
+Azheekal beach - 8km (sunset/lighthouse). 
+Lighthouse - must visit.
+Krishnapuram Palace - 8.4 km 
+Neendakara port - 23km
+Ashtamudi lake - 25km
+Munroe island - 25km 
+Thangassery beach - 31km
+Jatayu rock - 63 km
+`````
 ------------------------------------------------------------
 
 One of our team members is not well and might not be able to come to Amritapuri. In that case will we be able to give the competition with only 2 of the team members present?
 
 `they can come and participate in the regional contest at amritapuri. But they will not be included in the ranking lists`
-`Ask them to send a mail to maheshwara@amrita.edu`------------------------------------------------------------
-
-One of our team members is not well and might not be able to come to Amritapuri. In that case will we be able to give the competition with only 2 of the team members present?
-
-`they can come and participate in the regional contest at amritapuri. But they will not be included in the ranking lists`
 `Ask them to send a mail to maheshwara@amrita.edu`
-------------------------------------------------------------
-
-One of our team members is not well and might not be able to come to Amritapuri. In that case will we be able to give the competition with only 2 of the team members present?
-
-`they can come and participate in the regional contest at amritapuri. But they will not be included in the ranking lists`
-`Ask them to send a mail to maheshwara@amrita.edu`
-
-------------------------------------------------------------
-
-One of our team members is not well and might not be able to come to Amritapuri. In that case will we be able to give the competition with only 2 of the team members present?
-
-`they can come and participate in the regional contest at amritapuri. But they will not be included in the ranking lists`
-`Ask them to send a mail to maheshwara@amrita.edu`
-------------------------------------------------------------
-
-One of our team members is not well and might not be able to come to Amritapuri. In that case will we be able to give the competition with only 2 of the team members present?
-
-`they can come and participate in the regional contest at amritapuri. But they will not be included in the ranking lists`
-`Ask them to send a mail to maheshwara@amrita.edu`
-------------------------------------------------------------
-
-One of our team members is not well and might not be able to come to Amritapuri. In that case will we be able to give the competition with only 2 of the team members present?
-
-`they can come and participate in the regional contest at amritapuri. But they will not be included in the ranking lists`
-`Ask them to send a mail to maheshwara@amrita.edu`
+--------------------------------------------------------
