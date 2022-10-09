@@ -96,7 +96,29 @@ Munroe island - 25km
 Thangassery beach - 31km
 Jatayu rock - 63 km
 `````
+------------------------------------------------------------
 
+One of our team members is not well and might not be able to come to Amritapuri. In that case will we be able to give the competition with only 2 of the team members present?
+
+`they can come and participate in the regional contest at amritapuri. But they will not be included in the ranking lists`
+`Ask them to send a mail to maheshwara@amrita.edu`
+------------------------------------------------------------
+
+One of our team members is not well and might not be able to come to Amritapuri. In that case will we be able to give the competition with only 2 of the team members present?
+
+`they can come and participate in the regional contest at amritapuri. But they will not be included in the ranking lists`
+`Ask them to send a mail to maheshwara@amrita.edu`
+------------------------------------------------------------
+
+One of our team members is not well and might not be able to come to Amritapuri. In that case will we be able to give the competition with only 2 of the team members present?
+
+`they can come and participate in the regional contest at amritapuri. But they will not be included in the ranking lists`
+`Ask them to send a mail to maheshwara@amrita.edu`------------------------------------------------------------
+
+One of our team members is not well and might not be able to come to Amritapuri. In that case will we be able to give the competition with only 2 of the team members present?
+
+`they can come and participate in the regional contest at amritapuri. But they will not be included in the ranking lists`
+`Ask them to send a mail to maheshwara@amrita.edu`
 ------------------------------------------------------------
 
 One of our team members is not well and might not be able to come to Amritapuri. In that case will we be able to give the competition with only 2 of the team members present?
