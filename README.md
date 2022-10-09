@@ -55,6 +55,27 @@ We are arriving on 4th evening, so is it possible that you can provide us with a
 
 `Yes, we can provide accommodation from 4th oct 👍🏻`
 
+The Coach is not travelling with the participants, Should the coaches be added into the Whatsapp group?
+
+`Not necessary, if he wants to be in the grp, sure`
+
+------------------------------------------------------------
+
+We are arriving on 4th evening, so is it possible that you can provide us with accomodation from 4th oct?
+
+`Yes, we can provide accommodation from 4th oct 👍🏻`
+
+The Coach is not travelling with the participants, Should the coaches be added into the Whatsapp group?
+
+`Not necessary, if he wants to be in the grp, sure`
+
+------------------------------------------------------------
+
+We are arriving on 4th evening, so is it possible that you can provide us with accomodation from 4th oct?
+
+`Yes, we can provide accommodation from 4th oct 👍🏻`
+
+
 ------------------------------------------------------------
 
 Reserve members not mandatory, right?
